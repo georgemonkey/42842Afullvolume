@@ -2,7 +2,7 @@
  
 Team 42842A (Infinity) Github Page
 
-Please use responsibly.
+please use responsibly yall
 
--Parth A
+-parth amradkar
 
